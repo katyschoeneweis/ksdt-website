@@ -8,13 +8,21 @@ __DJ/Request Line__ *858-534-KSDT*
 
 ## Staff
 
-__General Manager__ Katy :-) *email@email.email*
+__General Managers__ Katy and Camellia *ksdt.manager@gmail.com*
 
-__Webmaster__ tennyson *thollowa@ucsd.edu*
+__Music Director__ Mary *ksdt.musicdirectors@gmail.com*
+
+__Promotions__ Susan and Morgana *ksdt.promotions@gmail.com*
+
+__DJ Affairs__ Stacy and Patty 
+
+__Sound Engineer__ Brian *bdbarr
+
+__Webmaster__ Tennyson *thollowa@ucsd.edu*
 
 ## Music Submissions
 
-We love your submissions! We'll listen to them and add them to our library. 
+We love your submissions! We'll listen to them and let you know if we add them to our library. 
 Send digital submissions to *ksdt.musicdirectors@ucsd.edu*. For mail submissions, use the following address:
 
 Attn: Music Directors \\
