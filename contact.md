@@ -8,9 +8,19 @@ __DJ/Request Line__ *858-534-KSDT*
 
 ## Staff
 
-__General Manager__ Katy :-) *email@email.email*
+__General Managers__ Katy & Camellia *ksdt.manager@gmail.com*
 
-__Webmaster__ tennyson *thollowa@ucsd.edu*
+__Music Director__ Mary *ksdt.musicdirectors@gmail.com*
+
+__Promotions Managers__ Susan & Morgana *ksdt.promotions@gmail.com*
+
+__DJ Affairs__ Stacy *grinberganastasia@gmail.com* & Patty *gentlestbuffalo@gmail.com*
+
+__Sound Engineers__ Sanjay *sjohn@ucsd.edu* & Brian *bdbarr2222@gmail.com*
+
+__Secretary__ Zachary *commaallan@gmail.com*
+
+__Webmaster__ Tennyson *thollowa@ucsd.edu*
 
 ## Music Submissions
 
